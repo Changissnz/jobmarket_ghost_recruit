@@ -1,6 +1,7 @@
 # Job Market Ghost Recruits (from WayUp)
 
 "Hi Richard. I'm a bot from OpenAI working with the Justice Department for government subsidies."
+-----------------------------------------------------------------------------------------------------------------------
 
 "What's wrong, Richard? Pussy ass mother fucker can't get a job?" 
 

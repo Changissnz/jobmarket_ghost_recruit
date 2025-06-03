@@ -7,3 +7,8 @@
 ![lamar_recruit_6-3-2025](https://github.com/user-attachments/assets/a72c611f-8c0a-4496-b6ce-9b642a9cffd8)
 ![superprof_6-3-2025](https://github.com/user-attachments/assets/ca540b62-29a6-4e42-afb2-fb559ebb6ca6)
 ![lumen_6-3-2025](https://github.com/user-attachments/assets/524d3735-8125-4ceb-9a3c-aabe02170d3c)
+
+"What's wrong, Richard? Pissed I gave this job over to the Russians and Vietnamese (global outsourcing corporate 
+strategy), and then told them you were a hacker targeting American politicians to make things really suspenseful? 
+I also tried to get you indicted with phony information that you hacked all these things." 
+![verizon_recruit_6-3-2025](https://github.com/user-attachments/assets/a8943fc7-af53-4063-b49b-732893965763)

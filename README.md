@@ -29,3 +29,9 @@ I also tried to get you indicted with phony information that you hacked all thes
 you, Richard. The Russians and Vietnamese over in Russia and Vietnam. I sold you out to them, Richard." 
 
 ![verizon_recruit_6-3-2025](https://github.com/user-attachments/assets/a8943fc7-af53-4063-b49b-732893965763)
+
+"You want some of this, pussy ass mother fucker?! You want money like this because you think you're so smawt while 
+everyone is starving and thirsty for crypto-currency cock down their throats to make them rich as shit? You're 
+soft, boy. You're fake, boy." 
+
+![bullana_recruit_6_13_2025](https://github.com/user-attachments/assets/b7e4a54e-23d6-46fc-a8ae-b702be4b1aae)
